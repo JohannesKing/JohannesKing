@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JohannesKing
 - 👀 I’m interested in Cars and James Bond 
-- 🌱 I’m currently doing school things
+- 🌱 I’m currently doing small personal projects
 - 💞️ I’m looking to make a virtual assistant
 - 📫 Reach me on instagram; @johannesking
 
